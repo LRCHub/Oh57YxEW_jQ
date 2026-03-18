@@ -1,4 +1,4 @@
-# BUMP OF CHICKEN – BUMP OF CHICKEN「アカシア」 from BUMP OF CHICKEN Studio Live Silver Jubilee
+# BUMP OF CHICKEN – アカシア
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
